@@ -1,3 +1,5 @@
+Jas Yu | luluyu1@outlook.com
+
 Education
 Northeastern University | Computer Science and Business Administration
 GPA 4.0
